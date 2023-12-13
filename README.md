@@ -1,2 +1,0 @@
-# Emmanuel-Oladayo-HTML-CSS
-HTML ASSIGNMRNT
